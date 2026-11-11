@@ -1,4 +1,4 @@
-# My Favorite Movies
+# My Favorite Movies or Series
 1. __Spiderman: Brand New Day__ = in this movie, Peter Parker have organic webs and became stronger fighting villains while saving the relationship with MJ
 2. __Resident Evil__ = Bryan was tasked with delivering the cure to the infection in Raccoon City while fighting them like an ordinary relatable person
 3. __Chainsaw Man - The Movie: Reze Arc__ = Denji have a romantic encounter with Reze, the bomb devil but became a tragedy and they fought because of different perspectives
